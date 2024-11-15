@@ -1,1 +1,3 @@
 # primeiro
+
+Nota : vamos ter a mesma visão de tudo de novo........
